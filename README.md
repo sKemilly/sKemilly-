@@ -1,6 +1,5 @@
 ʕ๑•́ᴥ•̀๑ʔ Kemy
-.°•. Beginner programming student
-˗ˏˋˎˊ- Brazil 
+.°•. Beginner programming student 
 *ೃ 1.7 
 
 
